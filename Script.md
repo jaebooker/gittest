@@ -32,6 +32,14 @@ The Unicorn King pointed his staff at him.
 
 "You." He said, "You have been chosen!"
 
+"No!" Cried a Koala, swooping down, wielding a knife, sporting sunglasses, and smoking a cigar.
+
+"The Koala King!" The Unicorn King cried, "No!"
+
+But the Koala was too fast, stabbing the Unicorn King in the chest.
+
+"Run, my son." The Unicorn King gasped, "It is written that you must defeat him!"
+
 To be Continued
 
 ## Cast
