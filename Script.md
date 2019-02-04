@@ -22,6 +22,10 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+The Zookeeper jumped out with an axe, hair in disarray. "What are you doin here, boy?" He growled, wielding the axe, but was so distracted he didn't watch out for the mountain lion behind him.
+
+"No!" He cried, but it was too late. The mountain lion, having waited for such a moment, finally got his revenge for being imprisoned, and was now free at last.
+
 George met the Unicorn King who granted him magic powers.
 The end.
 
