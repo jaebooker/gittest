@@ -22,8 +22,17 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers.
-The end.
+The Unicorn King swooped down, aiming his staff at George.
+
+"It is time!" He shouted.
+
+The boy couldn't say anything, too shocked to do anything.
+
+The Unicorn King pointed his staff at him.
+
+"You." He said, "You have been chosen!"
+
+To be Continued
 
 ## Cast
 
